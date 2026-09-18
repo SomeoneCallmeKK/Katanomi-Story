@@ -1,1 +1,0 @@
-# Katanomi-Story
